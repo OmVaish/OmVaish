@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OmVaish
-- 👀 I’m interested in singind and doing research and also coding.
+- 👀 I’m interested in singing and doing research and also coding.
 - 🌱 I’m currently a student of Bsc .(Hons) computer science.
 - 💞️ I’m looking to collaborate on best research projects .
 - 📫 My insta id is @_omvaish.
